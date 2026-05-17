@@ -1,10 +1,10 @@
-Principal Astrill VPN Extensión | soporte PPTP + soporte multiprotocolo es el mejor Astrill VPN extensión con soporte PPTP y soporte multiprotocolo. Seguro y optimizado.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://foundtailorthink.github.io/astrill-vpn-jz03/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
