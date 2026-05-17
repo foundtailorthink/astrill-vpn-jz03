@@ -1,10 +1,10 @@
-أفضل Astrill امتداد | دعم PPTP + دعم متعدد البروتوكولات هو أفضل Astrill امتداد مع دعم PPTP و دعم متعدد البروتوكولات. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://foundtailorthink.github.io/astrill-vpn-jz03/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
